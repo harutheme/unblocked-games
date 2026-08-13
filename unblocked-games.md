@@ -1,0 +1,44 @@
+# Unblocked Sites
+Hello everybody! Here are some of the many unblocked game sites I know:
+LAST UPDATED: 8/13/2026
+- https://miniwebgames.com/ (Recommended)
+- https://cattn.github.io/gba/
+- https://oddpvp.github.io/unblockedgames/
+- https://trickjoker312.github.io/
+- https://funkymods.github.io/
+- https://28klotlucas2.github.io/Funkin-Html5/
+- https://luckydog7.github.io/funkinmobile/game/index.html
+- https://gaming99github.github.io/
+- https://trickjoker312.github.io/unblockedgames/
+- https://bidoofery.github.io/renov8/projects.html
+- https://theooofficial.github.io/myRETROGAMES/
+- https://genarcy.github.io/Pages/games.html
+- https://culpix08.github.io/
+- https://amongusland.github.io/
+- https://bruhmomentiv.github.io/
+- https://emulatoros2.github.io/
+- https://EmulatorOS420.github.io
+- https://fortnitemanonfortnite.github.io
+- https://gamelff.github.io/
+- https://jimmysaulgoodman.github.io/
+- https://mekomancer.github.io/
+- https://patrickl4321.github.io/
+- https://lioxrytbackup.github.io/
+- https://3kh0-hel.github.io/
+- https://658658658.github.io/
+- https://ice-wallo-come.github.io/
+- https://mgg658.github.io/
+- https://mountain-game-games.github.io/
+- https://mountjustin.github.io/
+- https://3kh04ever.github.io/
+- https://angrytree0.github.io/
+- https://3kh0preview.github.io/
+- https://5kh0.github.io/
+- https://69kh0.github.io/
+- https://75kh0.github.io/
+- https://prestonwitzel.github.io/
+- https://mathgames67.github.io/
+- https://mgalternative.github.io/
+- https://mgunblocked.github.io/
+- https://rx1ncreations.github.io/
+- Continue updating...
